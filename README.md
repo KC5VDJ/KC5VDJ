@@ -22,7 +22,7 @@ No, Christian extremists, after having millions of you say it to my wife and I, 
 
 At least I'm an honest person.
 
-P.S. To the "decent" people out there, sorry, but not sorry.  Your tolerance brought this country here.
+P.S. To the "decent" people out there, sorry, but not sorry.  Your tolerance brought this country here.  THEY DON'T TOLERATE ANYONE UNLIKE THEM, YOU ONLY ENABLED THEM TO BE WORSE.
 
 To any DFL friends reading this: you know i warned you about them, and you can probably guess why they lured us to Texastan for the purpose. Yes, we have that evidence, and the person whom the brags were made to.  The evidence has been vetted, it's legit, it was DEFINITELY from primary perps.
 
