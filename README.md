@@ -21,3 +21,5 @@ I wonder what a study of their braincases would show?  Bone changes endemic to R
 No, Christian extremists, after having millions of you say it to my wife and I, fuck YOUR feelings.
 
 At least I'm an honest person.
+
+P.S. To the "decent" people out there, sorry, but not sorry.  Your tolerance brought this country here.
