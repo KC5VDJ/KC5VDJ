@@ -23,3 +23,5 @@ No, Christian extremists, after having millions of you say it to my wife and I, 
 At least I'm an honest person.
 
 P.S. To the "decent" people out there, sorry, but not sorry.  Your tolerance brought this country here.
+
+To any DFL friends reading this: you know i warned you about them.
