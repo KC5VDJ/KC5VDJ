@@ -10,4 +10,4 @@ Sixty years ago, Malcolm X noted that they are incapable of positive moral chang
 
 Why, you ask?  "We don't want no atheist babies born here!".
 
-Kill them all.
+Kill them all, and since they ROUTINELY target children, their children too.
