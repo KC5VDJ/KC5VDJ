@@ -15,3 +15,5 @@ Kill them all, and since they ROUTINELY target children, their children too.
 If you become a victim of Christian Hate Crimes in Texastan (or anywhere in rural USA, we've spoken with over 2000 other families), DO NOT CALL THE LAW ENFORCEMENT THAT THE PERPS BRAG ABOUT AS THE COMMIT THEY CRIMES. Buy a gun, they have left vigilantism as the ONLY option.  They actually brag that their LEOs and Courts are rigged when they do it, just kill them for the sake of mankind.
 
 Don't even ask me to trust the SCrOTUS.  Civil War will bring Justice.  I'll trust war before I'll trust them.
+
+No, Christian extremists, after having millions of you say it to us, fuck YOUR feelings.  At least I'm an honest person.
