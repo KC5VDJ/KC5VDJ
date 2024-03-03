@@ -16,6 +16,8 @@ If you become a victim of Christian Hate Crimes in Texastan (or anywhere in rura
 
 Don't even ask me to trust the SCrOTUS.  Civil War will bring Justice.  I'll trust war before I'll trust them.
 
+I wonder what a study of their braincases would show?  Bone changes endemic to RBS?  I already call them Jocko Homo, a degenerate subspecies.
+
 No, Christian extremists, after having millions of you say it to my wife and I, fuck YOUR feelings.
 
 At least I'm an honest person.
