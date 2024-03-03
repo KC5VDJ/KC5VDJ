@@ -16,4 +16,6 @@ If you become a victim of Christian Hate Crimes in Texastan (or anywhere in rura
 
 Don't even ask me to trust the SCrOTUS.  Civil War will bring Justice.  I'll trust war before I'll trust them.
 
-No, Christian extremists, after having millions of you say it to us, fuck YOUR feelings.  At least I'm an honest person.
+No, Christian extremists, after having millions of you say it to my wife and I, fuck YOUR feelings.
+
+At least I'm an honest person.
