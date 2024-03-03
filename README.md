@@ -25,3 +25,5 @@ At least I'm an honest person.
 P.S. To the "decent" people out there, sorry, but not sorry.  Your tolerance brought this country here.
 
 To any DFL friends reading this: you know i warned you about them, and you can probably guess why they lured us to Texastan for the purpose. Yes, we have that evidence, and the person whom the brags were made to.  The evidence has been vetted, it's legit, it was DEFINITELY from primary perps.
+
+To any others, we simply want Justice.  If 80 million people have to die, well, maybe tolerance of them just makes it them worse, but a retard could have predicted that; what the fuck is wrong with you people?  The threats were in public.  Public Domain.  Title 17 fair use as well, if they pull "public comms is private", I'm still covered, despite their attempt to doubleplusgood us, as they do everything.  Most of all, since the threats were directed at my infant / toddler child (when they were made), I have a moral obligation to give their constiuants a chance to remove them from office.  How is not my concern.
