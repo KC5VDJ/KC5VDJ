@@ -6,4 +6,4 @@ Due to our situation, work here will be sporadic.  I am writing a book and tryin
 
 Hey retards, I'm a former DFL CD Director, a clump of cells in a test tube isn't a child.  Third fucking Trimester fucking is.  If we don't win big, civil war is long overdue, and I support it.  I have been greatly motivated to support such a war.  I don't think they are fixable as people, war is the only option.
 
-Sixty years ago, Malcolm X noted that they are incapable of positive moral change.  The proof is in the pudding, and the pudding has been cooked and ready for millennia.  Welcome to 2024.  Malcolm X was right.
+Sixty years ago, Malcolm X noted that they are incapable of positive moral change.  The proof is in the pudding, and the pudding has been cooked and ready for millennia.  Welcome to 2024.  Malcolm X was right.  War is the only cure.
