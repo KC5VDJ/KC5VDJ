@@ -11,3 +11,5 @@ Sixty years ago, Malcolm X noted that they are incapable of positive moral chang
 Why, you ask?  "We don't want no atheist babies born here!".
 
 Kill them all, and since they ROUTINELY target children, their children too.
+
+If you become a victim of Christian Hate Crimes in Texastan (or anywhere in rural USA, weve spoken with over 2000 other families), DO NOT CALL THE LAW ENFORCEMENT THAT THE PERPS BRAG ABOUT AS THE COMMIT THE CRIMES. Buy a gun, they have left vigilantism as the ONLY option.  They actualrbrag that their LEOs and Courts are rigged when they do it, just kill them for the sake of mankind.
