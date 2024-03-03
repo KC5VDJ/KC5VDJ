@@ -24,4 +24,4 @@ At least I'm an honest person.
 
 P.S. To the "decent" people out there, sorry, but not sorry.  Your tolerance brought this country here.
 
-To any DFL friends reading this: you know i warned you about them, and you can probably guess why they lured us to Texastan for the purpose. Yes, we have that evidence, and the person whom the brags were made to.
+To any DFL friends reading this: you know i warned you about them, and you can probably guess why they lured us to Texastan for the purpose. Yes, we have that evidence, and the person whom the brags were made to.  The evidence has been vetted, it's legit.
