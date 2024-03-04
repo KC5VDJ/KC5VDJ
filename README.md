@@ -47,6 +47,8 @@ I will not apologize for my cynicism.  Buy me a drink or some bud when they try 
 
 If anyone wants to know why I was targeted, and I was, I'll polygraph in a SCIF.  We'll have a nice discussion about Insurrectionists.  My DFL friends can assure you that it is real, and that if I say the SCIF is necessary, that it is.  I would hope Mee and JP would vouch, hell, I bet even Amy remembers me, and have no doubt that Keith does.  I am still proud to have been Precinct Chair in Dayton's Bluff, former home of both Chief Justice Burger, and Justice Blackmun, both played hockey at the local school.  GO EASTSIDE!!
 
+I want answers, truthful ones, so a SCIF will also be needed for that.
+
 Sorry for the length of this, but not sorry.  I am not going to lie for them, we are their victims.
 
 So, if you are still here, yes all of these projects will be filled out with time.  My wife and I have a lot of irons in the fire...under FAR from ideal conditions.
