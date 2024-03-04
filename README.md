@@ -39,4 +39,4 @@ A: Why does Slitherin go to Hogwarts?
 The evil was always from within the church.
 -- Jim Bryant
 
-(For retards who don't understand the quote, devil worshippers are by definition Christian, because it was invented by them.  They speak from pulpits and sit in pews).
+(For retards who don't understand the quote, devil worshippers are by definition Christian, because it was invented by them.  They speak from pulpits and sit in pews, and in 2024 are quite obvious and proud of it).
