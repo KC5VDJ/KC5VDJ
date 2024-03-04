@@ -50,3 +50,5 @@ If anyone wants to know why I was targeted, and I was, I'll polygraph in a SCIF.
 Sorry for the length of this, but not sorry.  I am not going to lie for them, we are their victims.
 
 So, if you are still here, yes all of these projects will be filled out with time.  My wife and I have a lot of irons in the fire...under FAR from ideal conditions.
+
+P.P.S. If you are someone with a SCIF and a polygrapher, would you like to buy some land amidst the Oathkeepers leadership?
