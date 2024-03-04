@@ -33,6 +33,7 @@ If WE cannot obtain Justice to our satisfaction, blame it all on Mitch McConnell
 The way I see it, they are unfixable people who have a complete lack of morality, and are biologically geared to reject any attempt to teach them morality, because they are a derived degenerate subspecies, and they only learn through pain and fear, who as a result need someone to teach them "morals" from a pulpit by way of fear of pain, and GIGO: garbage "people".  The war is inevitable and all of the offramps on this highway have been passed by long ago; they have been screaming at the top of their lungs for such a war since that Treasonous skinhead Bo Gritz seig heiled that Treasonous skinhead Randy Weaver and his skinhead family.  Take them at their word, they are going to kill everyone they say in public that they will kill.  Christians have a genocidal bloodlust.  I'd rather that the war didn't happen on their terms.  Fuck the fucking fuckers.
 
 Q: Why do Diabolists join the clergy?
+
 A: Why does Slitherin go to Hogwarts?
 
 The evil was always from within the church.
