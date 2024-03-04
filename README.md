@@ -46,3 +46,5 @@ Interestingly, the fact of the forgery inserting "666", if my suspicion is right
 I will not apologize for my cynicism.  Buy me a drink or preroll when they try to kill your about to be born little girl twice in the third trimester for their shitbag Jesus, with everyone thinking it is so cool, that they cover it up, then commit over a decade more of hate crimes on you while you are cancelled TOTALLY by ALL of them to prevent legal action against them.  Just for fucking starters.
 
 If anyone wants to know why I was targeted, and I was, I'll polygraph in a SCIF.  We'll have a nice discussion about Insurrectionists.  My DFL friends can assure you that it is real, and that if I say the SCIF is necessary, that it is.  I would hope Mee and JP would vouch, hell, I bet even Amy remembers me, and have no doubt that Keith does.  I am still proud to have been Precinct Chair in Dayton's Bluff, former home of both Chief Justice Burger, and Justice Blackmun, both played hockey at the local school.  GO EASTSIDE!!
+
+Sorry for the length of this, but not sorry.  I am not going to lie for them, we are their victims.
