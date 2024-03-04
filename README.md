@@ -55,4 +55,4 @@ So, if you are still here, yes all of these projects will be filled out with tim
 
 P.S. If you are someone with a SCIF and a polygrapher, would you like to buy some land amidst the Oathkeepers leadership?  We need money.
 
-P.P.S. In realtime 3/4/2024. The SCrOTUS just went full Treason against the U.S. Constitution.  I'll trust war.  SCrOTUS DOES NOT HAVE THE AUTHORITY TO REPEAL THE CONSTITUTION.  IT JUST DID.  THIS QUESTION WAS DECIDED BY THE STATES IN 1868.
+P.P.S. In realtime 3/4/2024. The SCrOTUS just went full Treason against the U.S. Constitution.  I'll trust war.  SCrOTUS DOES NOT HAVE THE AUTHORITY TO REPEAL THE CONSTITUTION.  IT JUST DID.  THIS QUESTION WAS DECIDED BY THE STATES IN 1868.  ONLY THE STATES CAN REPEAL IT!!!!  FUCKING TREASON.  I SUPPORT WAR.
