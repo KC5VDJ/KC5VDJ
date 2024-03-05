@@ -61,4 +61,4 @@ P.P.P.S. If you even think you might run for Congress, don't make child molestat
 
 ALL THAT ASIDE
 
-I will be doing the projects that I have initiated here at github, just understand we have a lot of hot irons in the fire.  Money would help (with the PTSD as well), as well as a competent Constitutional and Civil Rights Attorney who can pass my interview.
+I will be doing the projects that I have initiated here at github, just understand we have a lot of hot irons in the fire.  Money would help (with the PTSD as well), as well as a competent Constitutional and Civil Rights Attorney who can pass my interview, and don't insult my intelligence or knowledge, I'll tell you where to shove it.
